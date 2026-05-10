@@ -75,6 +75,7 @@ CHƯƠNG 3: TTHCM VỀ ĐỘC LẬP DÂN TỘC VÀ CHỦ NGHĨA XÃ HỘI
 163. “Chỉ có giai cấp công nhân là dũng cảm nhất, cách mạng nhất, luôn luôn gan góc đương đầu với bọn đế quốc thực dân” – trích trong tác phẩm “30 năm hoạt động của Đảng”
 165. Ngày 17/7/1966: Hồ Chí Minh ra Lời kêu gọi đồng bào và chiến sĩ cả nước, trong đó nêu ra một chân lý lớn của thời đại: “KHÔNG CÓ GÌ QUÝ HƠN ĐỘC LẬP, TỰ DO”
 
+
 CHƯƠNG 4: TTHCM VỀ ĐẢNG CỘNG SẢN VN VÀ NHÀ NƯỚC CỦA NHÂN DÂN, DO NHÂN DÂN, VÌ NHÂN DÂN
 
 40. " Trong giai đoạn này, quyền lợi của giai cấp công nhân và nhân dân lao động và của dân tộc là một, chính vì Đảng cộng sản VN là Đảng của GCCN và NDLĐ, cho nên nó là Đảng của dân tộc VN " - BÁO CÁO CHÍNH TRỊ TẠI ĐẠI HỘI ĐẢNG TOÀN QUỐC LẦN THỨ II ( THÁNG 2/ 1951 ) - BẢN CHẤT CỦA ĐẢNG CỘNG SẢN
@@ -105,7 +106,9 @@ CHƯƠNG 4: TTHCM VỀ ĐẢNG CỘNG SẢN VN VÀ NHÀ NƯỚC CỦA NHÂN DÂN
 118. Theo quan điểm của Hồ Chí Minh, nhà nước mang bản chất của giai cấp nào? GCCN
 120. Phê bình, tự phê bình: NGUYÊN TẮC SINH HOẠT
 
+
 CHƯƠNG 5: TTHCM VỀ ĐẠI ĐOÀN KẾT TOÀN DÂN TỘC VÀ ĐOÀN KẾT QUỐC TẾ
+
 
 16. Hồ Chí Minh là người đầu tiên khẳng định hợp tác quốc tế là xu thế tất yếu của thời đại: ĐÚNG
 63. Nguyên tắc cốt lõi trong tổ chức và hoạt động của Mặt trận dân tộc thống nhất: HÌNH THÀNH TRÊN NỀN TẢNG KHỐI LIÊN MINH CÔNG - NÔNG - TRÍ ĐẶT DƯỚI SỰ LÃNH ĐẠO CỦA ĐẢNG
