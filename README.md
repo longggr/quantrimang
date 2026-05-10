@@ -124,6 +124,7 @@ CHƯƠNG 5: TTHCM VỀ ĐẠI ĐOÀN KẾT TOÀN DÂN TỘC VÀ ĐOÀN KẾT QU�
 125. “ Việt Nam muốn làm bạn với MỌI NƯỚC DÂN CHỦ, không gây thù oán với một ai “
 
 CHƯƠNG 6: TTHCM VỀ VĂN HÓA, ĐẠO ĐỨC, CON NGƯỜI
+
 10. " Tư tưởng đạo đức HCM… tài sản tinh thần vô giá " CHỈ THỊ SỐ 06 / CT - TW KHÓA X
 17. " Chỉ những người cách mạng chân chính mới thu hái được những hiểu biết quý báu của các đời trước để lại " LÊ - NIN
 30. " Một dân tộc dốt là một dân tộc yếu " HCM
