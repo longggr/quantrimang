@@ -9,6 +9,7 @@ CHƯƠNG 1: KHÁI NIỆM, ĐỐI TƯỢNG, PHƯƠNG PHÁP NGHIÊN CỨU VÀ Ý N
 119. Đối tượng nghiên cứu môn học Tư tưởng Hồ Chí Minh là: Quá trình hệ thống quan điểm của Hồ Chí Minh vận động trong thực tiễn
 
 CHƯƠNG 2: CƠ SỞ, QUÁ TRÌNH HÌNH THÀNH VÀ PHÁT TRIỂN TTHCM
+
 2. BCH trung ương Đảng tôn vinh HCM là " anh hùng dân tộc vĩ đại " NĂM 1969
 5. HCM được UNESCO công nhận là " anh hùng dân tộc, nhà văn hóa kiệt xuất " NĂM 1987
 8. HCM tham gia sáng lập hội liên hiệp các thuộc địa: NĂM 1921
@@ -38,6 +39,7 @@ CHƯƠNG 2: CƠ SỞ, QUÁ TRÌNH HÌNH THÀNH VÀ PHÁT TRIỂN TTHCM
 166. Pháp chia Đông Dương thành 5 vùng, VN: Bắc Kỳ, Trung Kỳ, Nam Kỳ
 
 CHƯƠNG 3: TTHCM VỀ ĐỘC LẬP DÂN TỘC VÀ CHỦ NGHĨA XÃ HỘI
+
 9. Khuynh hướng " tả khuynh " bị chỉ trích: chỉ lo đến việc PHẢN ĐẾ
 11. Quốc tế cộng sản sửa chữa những sai lầm " tả khuynh" ở ĐẠI HỘI VII, phê phán trong đại hội VI
 15. Tác phẩm là sự chuẩn bị về mọi mặt chính trị, tư tưởng, tổ chức cho sự ra đời của Đảng cộng sản Việt Nam: ĐƯỜNG KÁCH MỆNH
@@ -74,6 +76,7 @@ CHƯƠNG 3: TTHCM VỀ ĐỘC LẬP DÂN TỘC VÀ CHỦ NGHĨA XÃ HỘI
 165. Ngày 17/7/1966: Hồ Chí Minh ra Lời kêu gọi đồng bào và chiến sĩ cả nước, trong đó nêu ra một chân lý lớn của thời đại: “KHÔNG CÓ GÌ QUÝ HƠN ĐỘC LẬP, TỰ DO”
 
 CHƯƠNG 4: TTHCM VỀ ĐẢNG CỘNG SẢN VN VÀ NHÀ NƯỚC CỦA NHÂN DÂN, DO NHÂN DÂN, VÌ NHÂN DÂN
+
 40. " Trong giai đoạn này, quyền lợi của giai cấp công nhân và nhân dân lao động và của dân tộc là một, chính vì Đảng cộng sản VN là Đảng của GCCN và NDLĐ, cho nên nó là Đảng của dân tộc VN " - BÁO CÁO CHÍNH TRỊ TẠI ĐẠI HỘI ĐẢNG TOÀN QUỐC LẦN THỨ II ( THÁNG 2/ 1951 ) - BẢN CHẤT CỦA ĐẢNG CỘNG SẢN
 43. Theo HCM, trong nội dung công tác xây dựng Đảng về chính trị, quan trọng là XÂY DỰNG ĐƯỜNG LỐI CHÍNH TRỊ
 44. "Một dân tộc, một đảng và mỗi con người, ngày hôm qua là vĩ đại, có sức hấp dẫn lớn, không nhất định hôm nay và ngày mai vẫn được mọi người yêu mến và ca ngợi, nếu lòng dạ không trong sáng nữa, nếu sa vào chủ nghĩa cá nhân".
@@ -103,6 +106,7 @@ CHƯƠNG 4: TTHCM VỀ ĐẢNG CỘNG SẢN VN VÀ NHÀ NƯỚC CỦA NHÂN DÂN
 120. Phê bình, tự phê bình: NGUYÊN TẮC SINH HOẠT
 
 CHƯƠNG 5: TTHCM VỀ ĐẠI ĐOÀN KẾT TOÀN DÂN TỘC VÀ ĐOÀN KẾT QUỐC TẾ
+
 16. Hồ Chí Minh là người đầu tiên khẳng định hợp tác quốc tế là xu thế tất yếu của thời đại: ĐÚNG
 63. Nguyên tắc cốt lõi trong tổ chức và hoạt động của Mặt trận dân tộc thống nhất: HÌNH THÀNH TRÊN NỀN TẢNG KHỐI LIÊN MINH CÔNG - NÔNG - TRÍ ĐẶT DƯỚI SỰ LÃNH ĐẠO CỦA ĐẢNG
 64. Theo HCM, đoàn kết dân tộc là đoàn kết NHỮNG NGƯỜI YÊU NƯỚC
@@ -158,6 +162,9 @@ CHƯƠNG 6: TTHCM VỀ VĂN HÓA, ĐẠO ĐỨC, CON NGƯỜI
 133. “ Dân ta phải biết sử ta, cho tường gốc tích nước nhà VN “ LỊCH SỬ NƯỚC TA
 
 CHUYÊN ĐỀ HỌC TẬP VÀ LÀM THEO TƯ TƯỞNG, ĐẠO ĐỨC, PHONG CÁCH HCM QUA CÁC NĂM:
+
+
+
 2007: Đẩy mạnh học tập và làm theo tấm gương đạo đức HCM
 2008: Tiết kiệm, chống tham nhũng, lãng phí, quan liêu
 2009: Nâng cao Ý THỨC TRÁCH NHIỆM, hết lòng hết sức phục vụ tổ quốc, phục vụ con người
