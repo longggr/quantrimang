@@ -167,17 +167,27 @@ CHƯƠNG 6: TTHCM VỀ VĂN HÓA, ĐẠO ĐỨC, CON NGƯỜI
 
 CHUYÊN ĐỀ HỌC TẬP VÀ LÀM THEO TƯ TƯỞNG, ĐẠO ĐỨC, PHONG CÁCH HCM QUA CÁC NĂM:
 
-
-
 2007: Đẩy mạnh học tập và làm theo tấm gương đạo đức HCM
+
 2008: Tiết kiệm, chống tham nhũng, lãng phí, quan liêu
+
 2009: Nâng cao Ý THỨC TRÁCH NHIỆM, hết lòng hết sức phục vụ tổ quốc, phục vụ con người
+
 2010: Xây dựng ĐẢNG TRONG SẠCH, “ là đạo đức, là văn minh “
+
 2011 - 2012: Cần kiệm liêm chính, chí công vô tư
+
 2013: Phong cách quần chúng
+
 2014: Chống chủ nghĩa cá nhân, nói đi đôi với làm
+
 2015: Trung thực, trách nhiệm
+
 2016: Học tập và làm theo tấm gương đạo đức HCM về nêu cao tinh thần trách nhiệm, phong cách gương mẫu, nói đi đôi với làm
+
 2017: Học tập và làm theo tư tưởng, đạo đức, phong cách HCM về PHÒNG CHỐNG SUY THOÁI TƯ TƯỞNG CHÍNH TRỊ, đạo đức lối sống, “ tự diễn biến, tự chuyển hóa “ trong nội bộ
+
 2018: Học tập làm theo tư tưởng, đạo đức, phong cách HCM về XÂY DỰNG PHONG CÁCH, TÁC PHONG CÔNG TÁC CỦA NGƯỜI ĐỨNG ĐẦU, CÁN BỘ, ĐẢNG VIÊN
+
 2019: Xây dựng ý thức tôn trọng NHÂN DÂN, phát huy dân chủ, chăm lo đời sống nhân dân theo tư tưởng, đạo đức phong cách HCM
+
