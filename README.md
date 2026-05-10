@@ -72,93 +72,105 @@ TTHCM
 71. Mỗi đảng viên và cán bộ phải thực sự thấm nhuần đạo đức cách mạng, thật sự cần kiệm liêm chính, chí công vô tư, phải giữ gìn đảng ta thật trong sạch, phải xứng đáng là người lãnh đạo, người ĐẦY TỚ TRUNG THÀNH của nhân dân “ HỒ CHÍ MINH - DI CHÚC
 
 Chuyên đề học tập và làm theo tư tưởng, đạo đức, phong cách HCM 2018: Học tập làm theo tư tưởng, đạo đức, phong cách HCM về XÂY DỰNG PHONG CÁCH, TÁC PHONG CÔNG TÁC CỦA NGƯỜI ĐỨNG ĐẦU, CÁN BỘ, ĐẢNG VIÊN
+
 2019: Xây dựng ý thức tôn trọng NHÂN DÂN, phát huy dân chủ, chăm lo đời sống nhân dân theo tư tưởng, đạo đức phong cách HCM
+
 2017: Học tập và làm theo tư tưởng, đạo đức, phong cách HCM về PHÒNG CHỐNG SUY THOÁI TƯ TƯỞNG CHÍNH TRỊ, đạo đức lối sống, “ tự diễn biến, tự chuyển hóa “ trong nội bộ
+
 2009: Nâng cao Ý THỨC TRÁCH NHIỆM, hết lòng hết sức phục vụ tổ quốc, phục vụ con người
+
 2016: Học tập và làm theo tấm gương đạo đức HCM về nêu cao tinh thần trách nhiệm, phong cách gương mẫu, nói đi đôi với làm
+
 2008: Tiết kiệm, chống tham nhũng, lãng phí, quan liêu
+
 2014: Chống chủ nghĩa cá nhân, nói đi đôi với làm
+
 2010: Xây dựng ĐẢNG TRONG SẠCH, “ là đạo đức, là văn minh “
+
 2011 - 2012: Cần kiệm liêm chính, chí công vô tư
+
 2015: Trung thực, trách nhiệm
+
 2013: Phong cách quần chúng
+
 2007: Đẩy mạnh học tập và làm theo tấm gương đạo đức HCM
+
 72. 5 điểm lớn trong định hướng xây dựng VĂN HÓA
 -Xây dựng LUÂN LÝ: biết hy sinh, làm lợi cho quần chúng
 -Xây dựng TÂM LÝ: Tinh thần độc lập tự cường
 -Xây dựng CHÍNH TRỊ: Dân quyền
 -Xây dựng XH: Mọi sự nghiệp phúc lợi của nhân dân
 
-73. " Hiểu chủ nghĩa Mác Lênin để sống có tình có nghĩa … " Ý nghĩa của việc làm và xuất bản loại sách " người tốt việc tốt " năm 1968
-74. Theo HCM, phẩm chất đạo đức gắn liền với hoạt động hằng ngày của mỗi con người " Cần, kiệm, liêm, chính, chí công vô tư "
-75. " Cũng như sông có nguồn thì mới có nước, không có nguồn thì sông cạn, cây phải có gốc không có gốc thì cây héo, người cán bộ phải có đạo đức, không có đạo đức thì dù có tài giỏi mấy cũng không lãnh đạo được nhân dân " SỬA ĐỔI LỐI LÀM VIỆC
-76. Nhân tố tạo nên sức hấp dẫn của CNXH: ĐẠO ĐỨC CÁCH MẠNG
-77. Không thuộc nội dung văn hóa văn nghệ: PHỤC VỤ ĐẠI CHÚNG
-78. Tác phẩm đầu tiên đề cập đến đạo đức cách mạng: ĐẠO ĐỨC CÁCH MẠNG 12/ 1958
-79. Vai trò của đạo đức là NỀN TẢNG/ gốc của người cách mạng
-80. ĐẠO ĐỨC CÁCH MẠNG THÁNG 12/ 1958
-81. " Vì lợi ích mười năm trồng cây, vì lợi ích trăm năm trồng người " HỒ CHÍ MINH mượn ý của QUẢN TRỌNG
-82. Theo HCM, bước đi xây dựng CNXH: TIẾN DẦN DẦN TỪNG BƯỚC
-83. Bàn nhiều về cuộc đấu tranh chống chủ nghĩa TƯ BẢN: CÁC MÁC
-84. Hồ Chí Minh bỏ phiếu tán thành Quốc tế cộng sản, tham gia sáng lập Đảng cộng sản Pháp, trở thành người cộng sản Việt Nam đầu tiên vào thời gian nào 25 -> 30/12/1920
-85. " Chủ nghĩa tư bản là một con đỉa có 1 vòi bám vào giai cấp vô sản ở chính quốc và một vòi khác bám vào giai cấp vô sản ở các nước thuộc địa. Nếu muốn giết con vật ấy, người ta phải đồng thời cắt cả 2 vòi " BẢN ÁN CHẾ ĐỘ THỰC DÂN PHÁP
-86. " Đảng vừa là người lãnh đạo, vừa là người đầy tớ trung thành của nhân dân " QUAN NIỆM VỀ ĐẢNG CỘNG SẢN VIỆT NAM CẦM QUYỀN
-87. Trong quá trình Đảng lấy Chủ nghĩa Mác Lênin làm " cốt " KHÔNG NGỪNG TỔNG KẾT KINH NGHIỆM CỦA ĐẢNG MÌNH, HỌC TẬP KINH NGHIỆM CỦA CÁC ĐẢNG CỘNG SẢN ANH EM
-88. " Nói chung thì các dân tộc phương Đông đều giàu tình cảm, và đối với họ một TẤM GƯƠNG SỐNG còn giá trị hơn một trăm bài diễn văn tuyên truyền " đề cập đến nội CÁC NGUYÊN TẮC RÈN LUYỆN ĐẠO ĐỨC
-89. Bộ môn tư tưởng Hồ Chí Minh có mấy nhiệm vụ khi nghiên cứu tư tưởng Hồ Chí Minh: 6 NHIỆM VỤ
-90. Đối tượng của bộ môn tư tưởng Hồ Chí Minh? QUÁ TRÌNH SẢN SINH VÀ HIỆN THỰC HÓA TƯ TƯỞNG HCM
-91. Quốc tế cộng sản (Quốc tế III) ra đời khi nào? THÁNG 3/1919
-92. Trong những luận điểm sau đây của Hồ Chí Minh về độc lập dân tộc gắn liền với chủ nghĩa xã hội, luận điểm nào bị ghi thiếu nội dung? Cách mạng giải phóng dân tộc muốn thắng lợi phải làm hai nhiệm vụ tư sản dân quyền cách mạng và thổ địa cách mạng
-93. Quan điểm: Vấn đề cơ bản của cách mạng thuộc địa là vấn đề nông dân là của? QUỐC TẾ CỘNG SẢN
-94. Xây dựng Đảng về đường lối chính trị thuộc nội dung nào trong công tác xây dựng Đảng? XÂY DỰNG ĐẢNG VỀ CHÍNH TRỊ
-95. Luận điểm sau đây thuộc tác phẩm nào của Hồ Chí Minh: “Nhân dân là ông chủ nắm chính quyền. Nhân dân bầu ra đại biểu thay mặt mình thi hành chính quyền ấy. Thế là dân chủ”? THƯỜNG THỨC CHÍNH TRỊ
-96. Theo chủ nghĩa Mác - Lênin, nhà nước bao giờ cũng mang bản chất của giai cấp nào? GIAI CẤP THỐNG TRỊ
-97. “ Ở NƯỚC TA CHÍNH QUYỀN LÀ CỦA DÂN, DO NHÂN DÂN LÀM CHỦ “ DI CHÚC
-98. Theo Hồ Chí Minh, đại đoàn kết dân tộc có vai trò như thế nào trong sự nghiệp cách mạng? MỤC TIÊU, ĐỘNG LỰC
-99. Để đoàn kết với các lực lượng tiến bộ trên thế giới, theo Hồ Chí Minh cần giương cao ngọn cờ gì? HÒA BÌNH TRONG CÔNG LÝ
-100. Để đoàn kết với phong trào cộng sản và công nhân quốc tế, theo Hồ Chí Minh cần giương cao ngọn cờ gì? CHỦ NGHĨA MÁC LÊNIN
-101. Để đoàn kết với các dân tộc trên thế giới, theo Hồ Chí Minh cần giương cao ngọn cờ gì? ĐỘC LẬP, TỰ DO, QUYỀN BÌNH ĐẲNG
-102. Theo Hồ Chí Minh, tính dân tộc của nền văn hóa được thể hiện ở những nội dung nào? Văn hóa vừa mang tính hiện đại, vừa mang tính kế thừa
-103. Theo Hồ Chí Minh, tính đại chúng của nền văn hóa được thể hiện ở những nội dung nào? Văn hóa hướng tới phục vụ nhân dân
-104. Nhìn một cách tổng quát thì chức năng của văn hóa theo Hồ Chí Minh được hiểu theo nghĩa nào? VĂN HÓA SOI ĐƯỜNG CHO QUỐC DÂN ĐI
-105. Hội Việt Nam cách mạng thanh niên (tổ chức tiền thân của Đảng Cộng sản Việt Nam) được Hồ Chí Minh sáng lập vào thời gian nào? THÁNG 6/ 1925
-106. Trong lời kết thúc buổi ra mắt Đảng Lao động Việt Nam ngày 3/3/1951, Hồ Chí Minh tuyên bố: Mục đích của Đảng lao động Việt Nam có thể gồm trong tám chữ. Đó là? ĐOÀN KẾT TOÀN DÂN, PHỤC VỤ TỔ QUỐC
-107. Thực dân Pháp xâm lược Việt Nam khi nào? 1858
-108. Theo Hồ Chí Minh, phẩm chất đạo đức nào thể hiện sự giàu mạnh về tinh thần, giàu mạnh về vật chất, thể hiện văn minh tiến bộ của một dân tộc? Cần, kiệm, liêm, chính, chí công vô tư
-109. Hồ Chí Minh khẳng định tính tất yếu của chủ nghĩa xã hội ở Việt Nam từ khi nào? NHỮNG NĂM 20 CỦA THẾ KỶ XX
-110. Mặt trận Liên Việt ra đời khi nào? 1951
-111. Hồ Chí Minh đã kế thừa và phát triển quan niệm về việc “xây dựng một xã hội lý tưởng trong đó công bằng, bác ái, nhân, nghĩa, trí, dũng, tín, liêm được coi trọng” từ học thuyết nào? NHO GIÁO
-112. Nhà nước phục vụ lợi ích và nguyện vọng của nhân dân: VÌ DÂN
-113. Nhà nước do nhân dân lập nên thông qua bầu cử DO DÂN
-114. Nhà nước mà tất cả quyền lực trong nhà nước và trong xã hội đều thuộc về nhân dân CỦA DÂN
-115. Mặt trận dân tộc giải phóng miền nam Việt Nam ra đời khi nào? 1960
-116. Theo Hồ Chí Minh, điều kiện tiên quyết khi thực hiện nguyên tắc tập trung dân chủ trong sinh hoạt Đảng là? ĐẢNG PHẢI TRONG SẠCH
-117. Theo quan điểm của chủ nghĩa Mác - Lênin, nhà nước mang bản chất của giai cấp nào? GIAI CẤP THỐNG TRỊ
-118. Theo quan điểm của Hồ Chí Minh, nhà nước mang bản chất của giai cấp nào? GCCN
-119. Đối tượng nghiên cứu môn học Tư tưởng Hồ Chí Minh là: Quá trình hệ thống quan điểm của Hồ Chí Minh vận động trong thực tiễn
-120. Phê bình, tự phê bình: NGUYÊN TẮC SINH HOẠT
-121. “ Rằng đây bốn biển một nhà, VÀNG ĐEN TRẮNG ĐỎ đều là anh em. “
-122. “ Chủ trương làm tư sản dân quyền cách mạng và thổ địa cách mạng để đi tới xã hội cộng sản “ CHÍNH CƯƠNG VẮN TẮT CỦA ĐẢNG - HỒ CHÍ MINH
-123. “ Cũng như ngọc càng mài càng sáng, vàng càng luyện càng trong “ NÂNG CAO ĐẠO ĐỨC CÁCH MẠNG, QUÉT SẠCH CHỦ NGHĨA CÁ NHÂN
-124. “ Gạo đem vào giã bao đau đớn…” NHẬT KÍ TRONG TÙ - 1943
-125. “ Việt Nam muốn làm bạn với MỌI NƯỚC DÂN CHỦ, không gây thù oán với một ai “
-126. “ Người mà không liêm không bằng súc vật “ MẠNH TỬ
-127. “ Nếu trong một nước, ai cũng tham lợi thì nước sẽ nguy “ KHỔNG TỬ
-128. “ Hiền dữ phải đâu là tính sẵn phần nhiều do giáo dục mà nên “ HỒ CHÍ MINH
-129. “ Nay ở trong thơ nên có thép, nhà thơ cũng phải biết xung phong “ HỒ CHÍ MINH - CẢM TƯỞNG ĐỌC BÀI THIÊN GIA THI
-130. HCM gia nhập Đảng cộng sản Pháp NĂM 1920
-131. HCM đến Liên Xô lần đầu NĂM 1923
-132. Để chuẩn bị cho việc thành lập Đảng cộng sản VN, HCM từ Liên Xô về Trung Quốc NĂM 1924
-133. “ Dân ta phải biết sử ta, cho tường gốc tích nước nhà VN “ LỊCH SỬ NƯỚC TA
-134. Bác đọc luận cương của Lê nin ở đâu PARIS, PHÁP
-135. Tại Quảng Châu, Trung Quốc Bác mở nhiều lớp huấn luyện cán bộ cách mạng VN vào năm 1725 - 1927
-136. Năm 1923 - 1924, HCM đã tham gia hội nghị nào ở LIÊN XÔ: QUỐC TẾ NÔNG DÂN, QUỐC TẾ CỘNG SẢN, QUỐC TẾ THANH NIÊN
-137. HCM trực tiếp về lãnh đạo cách mạng 28/ 1/ 1941
-138. HCM tham gia đại hội Tua, tán thành Quốc tế III, tham gia sáng lập Đảng cộng sản Pháp khi nào: THÁNG 12/ 1920
-139. HCM gia nhập Đảng XÃ HỘI Pháp NĂM 1919
-140. Nguyễn Ái Quốc lấy tên Hồ Chí Minh khi nào? NĂM 1942 BÁC CÓ CHUYẾN CÔNG TÁC SANG TRUNG QUỐC
-141. Nguyễn Sinh Sắc 1862
-142. "Hai trăm thanh niên trong 1 tỉnh ở Nam kỳ biểu tình trước đồn cảnh
+74. " Hiểu chủ nghĩa Mác Lênin để sống có tình có nghĩa … " Ý nghĩa của việc làm và xuất bản loại sách " người tốt việc tốt " năm 1968
+75. Theo HCM, phẩm chất đạo đức gắn liền với hoạt động hằng ngày của mỗi con người " Cần, kiệm, liêm, chính, chí công vô tư "
+76. " Cũng như sông có nguồn thì mới có nước, không có nguồn thì sông cạn, cây phải có gốc không có gốc thì cây héo, người cán bộ phải có đạo đức, không có đạo đức thì dù có tài giỏi mấy cũng không lãnh đạo được nhân dân " SỬA ĐỔI LỐI LÀM VIỆC
+77. Nhân tố tạo nên sức hấp dẫn của CNXH: ĐẠO ĐỨC CÁCH MẠNG
+78. Không thuộc nội dung văn hóa văn nghệ: PHỤC VỤ ĐẠI CHÚNG
+79. Tác phẩm đầu tiên đề cập đến đạo đức cách mạng: ĐẠO ĐỨC CÁCH MẠNG 12/ 1958
+80. Vai trò của đạo đức là NỀN TẢNG/ gốc của người cách mạng
+81. ĐẠO ĐỨC CÁCH MẠNG THÁNG 12/ 1958
+82. " Vì lợi ích mười năm trồng cây, vì lợi ích trăm năm trồng người " HỒ CHÍ MINH mượn ý của QUẢN TRỌNG
+83. Theo HCM, bước đi xây dựng CNXH: TIẾN DẦN DẦN TỪNG BƯỚC
+84. Bàn nhiều về cuộc đấu tranh chống chủ nghĩa TƯ BẢN: CÁC MÁC
+85. Hồ Chí Minh bỏ phiếu tán thành Quốc tế cộng sản, tham gia sáng lập Đảng cộng sản Pháp, trở thành người cộng sản Việt Nam đầu tiên vào thời gian nào 25 -> 30/12/1920
+86. " Chủ nghĩa tư bản là một con đỉa có 1 vòi bám vào giai cấp vô sản ở chính quốc và một vòi khác bám vào giai cấp vô sản ở các nước thuộc địa. Nếu muốn giết con vật ấy, người ta phải đồng thời cắt cả 2 vòi " BẢN ÁN CHẾ ĐỘ THỰC DÂN PHÁP
+87. " Đảng vừa là người lãnh đạo, vừa là người đầy tớ trung thành của nhân dân " QUAN NIỆM VỀ ĐẢNG CỘNG SẢN VIỆT NAM CẦM QUYỀN
+88. Trong quá trình Đảng lấy Chủ nghĩa Mác Lênin làm " cốt " KHÔNG NGỪNG TỔNG KẾT KINH NGHIỆM CỦA ĐẢNG MÌNH, HỌC TẬP KINH NGHIỆM CỦA CÁC ĐẢNG CỘNG SẢN ANH EM
+89. " Nói chung thì các dân tộc phương Đông đều giàu tình cảm, và đối với họ một TẤM GƯƠNG SỐNG còn giá trị hơn một trăm bài diễn văn tuyên truyền " đề cập đến nội CÁC NGUYÊN TẮC RÈN LUYỆN ĐẠO ĐỨC
+90. Bộ môn tư tưởng Hồ Chí Minh có mấy nhiệm vụ khi nghiên cứu tư tưởng Hồ Chí Minh: 6 NHIỆM VỤ
+91. Đối tượng của bộ môn tư tưởng Hồ Chí Minh? QUÁ TRÌNH SẢN SINH VÀ HIỆN THỰC HÓA TƯ TƯỞNG HCM
+92. Quốc tế cộng sản (Quốc tế III) ra đời khi nào? THÁNG 3/1919
+93. Trong những luận điểm sau đây của Hồ Chí Minh về độc lập dân tộc gắn liền với chủ nghĩa xã hội, luận điểm nào bị ghi thiếu nội dung? Cách mạng giải phóng dân tộc muốn thắng lợi phải làm hai nhiệm vụ tư sản dân quyền cách mạng và thổ địa cách mạng
+94. Quan điểm: Vấn đề cơ bản của cách mạng thuộc địa là vấn đề nông dân là của? QUỐC TẾ CỘNG SẢN
+95. Xây dựng Đảng về đường lối chính trị thuộc nội dung nào trong công tác xây dựng Đảng? XÂY DỰNG ĐẢNG VỀ CHÍNH TRỊ
+96. Luận điểm sau đây thuộc tác phẩm nào của Hồ Chí Minh: “Nhân dân là ông chủ nắm chính quyền. Nhân dân bầu ra đại biểu thay mặt mình thi hành chính quyền ấy. Thế là dân chủ”? THƯỜNG THỨC CHÍNH TRỊ
+97. Theo chủ nghĩa Mác - Lênin, nhà nước bao giờ cũng mang bản chất của giai cấp nào? GIAI CẤP THỐNG TRỊ
+98. “ Ở NƯỚC TA CHÍNH QUYỀN LÀ CỦA DÂN, DO NHÂN DÂN LÀM CHỦ “ DI CHÚC
+99. Theo Hồ Chí Minh, đại đoàn kết dân tộc có vai trò như thế nào trong sự nghiệp cách mạng? MỤC TIÊU, ĐỘNG LỰC
+100. Để đoàn kết với các lực lượng tiến bộ trên thế giới, theo Hồ Chí Minh cần giương cao ngọn cờ gì? HÒA BÌNH TRONG CÔNG LÝ
+101. Để đoàn kết với phong trào cộng sản và công nhân quốc tế, theo Hồ Chí Minh cần giương cao ngọn cờ gì? CHỦ NGHĨA MÁC LÊNIN
+102. Để đoàn kết với các dân tộc trên thế giới, theo Hồ Chí Minh cần giương cao ngọn cờ gì? ĐỘC LẬP, TỰ DO, QUYỀN BÌNH ĐẲNG
+103. Theo Hồ Chí Minh, tính dân tộc của nền văn hóa được thể hiện ở những nội dung nào? Văn hóa vừa mang tính hiện đại, vừa mang tính kế thừa
+104. Theo Hồ Chí Minh, tính đại chúng của nền văn hóa được thể hiện ở những nội dung nào? Văn hóa hướng tới phục vụ nhân dân
+105. Nhìn một cách tổng quát thì chức năng của văn hóa theo Hồ Chí Minh được hiểu theo nghĩa nào? VĂN HÓA SOI ĐƯỜNG CHO QUỐC DÂN ĐI
+106. Hội Việt Nam cách mạng thanh niên (tổ chức tiền thân của Đảng Cộng sản Việt Nam) được Hồ Chí Minh sáng lập vào thời gian nào? THÁNG 6/ 1925
+107. Trong lời kết thúc buổi ra mắt Đảng Lao động Việt Nam ngày 3/3/1951, Hồ Chí Minh tuyên bố: Mục đích của Đảng lao động Việt Nam có thể gồm trong tám chữ. Đó là? ĐOÀN KẾT TOÀN DÂN, PHỤC VỤ TỔ QUỐC
+108. Thực dân Pháp xâm lược Việt Nam khi nào? 1858
+109. Theo Hồ Chí Minh, phẩm chất đạo đức nào thể hiện sự giàu mạnh về tinh thần, giàu mạnh về vật chất, thể hiện văn minh tiến bộ của một dân tộc? Cần, kiệm, liêm, chính, chí công vô tư
+110. Hồ Chí Minh khẳng định tính tất yếu của chủ nghĩa xã hội ở Việt Nam từ khi nào? NHỮNG NĂM 20 CỦA THẾ KỶ XX
+111. Mặt trận Liên Việt ra đời khi nào? 1951
+112. Hồ Chí Minh đã kế thừa và phát triển quan niệm về việc “xây dựng một xã hội lý tưởng trong đó công bằng, bác ái, nhân, nghĩa, trí, dũng, tín, liêm được coi trọng” từ học thuyết nào? NHO GIÁO
+113. Nhà nước phục vụ lợi ích và nguyện vọng của nhân dân: VÌ DÂN
+114. Nhà nước do nhân dân lập nên thông qua bầu cử DO DÂN
+115. Nhà nước mà tất cả quyền lực trong nhà nước và trong xã hội đều thuộc về nhân dân CỦA DÂN
+116. Mặt trận dân tộc giải phóng miền nam Việt Nam ra đời khi nào? 1960
+117. Theo Hồ Chí Minh, điều kiện tiên quyết khi thực hiện nguyên tắc tập trung dân chủ trong sinh hoạt Đảng là? ĐẢNG PHẢI TRONG SẠCH
+118. Theo quan điểm của chủ nghĩa Mác - Lênin, nhà nước mang bản chất của giai cấp nào? GIAI CẤP THỐNG TRỊ
+119. Theo quan điểm của Hồ Chí Minh, nhà nước mang bản chất của giai cấp nào? GCCN
+120. Đối tượng nghiên cứu môn học Tư tưởng Hồ Chí Minh là: Quá trình hệ thống quan điểm của Hồ Chí Minh vận động trong thực tiễn
+121. Phê bình, tự phê bình: NGUYÊN TẮC SINH HOẠT
+122. “ Rằng đây bốn biển một nhà, VÀNG ĐEN TRẮNG ĐỎ đều là anh em. “
+123. “ Chủ trương làm tư sản dân quyền cách mạng và thổ địa cách mạng để đi tới xã hội cộng sản “ CHÍNH CƯƠNG VẮN TẮT CỦA ĐẢNG - HỒ CHÍ MINH
+124. “ Cũng như ngọc càng mài càng sáng, vàng càng luyện càng trong “ NÂNG CAO ĐẠO ĐỨC CÁCH MẠNG, QUÉT SẠCH CHỦ NGHĨA CÁ NHÂN
+125. “ Gạo đem vào giã bao đau đớn…” NHẬT KÍ TRONG TÙ - 1943
+126. “ Việt Nam muốn làm bạn với MỌI NƯỚC DÂN CHỦ, không gây thù oán với một ai “
+127. “ Người mà không liêm không bằng súc vật “ MẠNH TỬ
+128. “ Nếu trong một nước, ai cũng tham lợi thì nước sẽ nguy “ KHỔNG TỬ
+129. “ Hiền dữ phải đâu là tính sẵn phần nhiều do giáo dục mà nên “ HỒ CHÍ MINH
+130. “ Nay ở trong thơ nên có thép, nhà thơ cũng phải biết xung phong “ HỒ CHÍ MINH - CẢM TƯỞNG ĐỌC BÀI THIÊN GIA THI
+131. HCM gia nhập Đảng cộng sản Pháp NĂM 1920
+132. HCM đến Liên Xô lần đầu NĂM 1923
+133. Để chuẩn bị cho việc thành lập Đảng cộng sản VN, HCM từ Liên Xô về Trung Quốc NĂM 1924
+134. “ Dân ta phải biết sử ta, cho tường gốc tích nước nhà VN “ LỊCH SỬ NƯỚC TA
+135. Bác đọc luận cương của Lê nin ở đâu PARIS, PHÁP
+136. Tại Quảng Châu, Trung Quốc Bác mở nhiều lớp huấn luyện cán bộ cách mạng VN vào năm 1725 - 1927
+137. Năm 1923 - 1924, HCM đã tham gia hội nghị nào ở LIÊN XÔ: QUỐC TẾ NÔNG DÂN, QUỐC TẾ CỘNG SẢN, QUỐC TẾ THANH NIÊN
+138. HCM trực tiếp về lãnh đạo cách mạng 28/ 1/ 1941
+139. HCM tham gia đại hội Tua, tán thành Quốc tế III, tham gia sáng lập Đảng cộng sản Pháp khi nào: THÁNG 12/ 1920
+140. HCM gia nhập Đảng XÃ HỘI Pháp NĂM 1919
+141. Nguyễn Ái Quốc lấy tên Hồ Chí Minh khi nào? NĂM 1942 BÁC CÓ CHUYẾN CÔNG TÁC SANG TRUNG QUỐC
+142. Nguyễn Sinh Sắc 1862
+143. "Hai trăm thanh niên trong 1 tỉnh ở Nam kỳ biểu tình trước đồn cảnh
 161. 1858 Pháp xâm lược VN
 162. 1858 => 1884 nhà Nguyễn kí 4 hiệp ước với Pháp
 1862: Hiệp ước Nhâm Tuất
