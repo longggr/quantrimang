@@ -88,6 +88,7 @@ Chuyên đề học tập và làm theo tư tưởng, đạo đức, phong cách
 -Xây dựng TÂM LÝ: Tinh thần độc lập tự cường
 -Xây dựng CHÍNH TRỊ: Dân quyền
 -Xây dựng XH: Mọi sự nghiệp phúc lợi của nhân dân
+
 73. " Hiểu chủ nghĩa Mác Lênin để sống có tình có nghĩa … " Ý nghĩa của việc làm và xuất bản loại sách " người tốt việc tốt " năm 1968
 74. Theo HCM, phẩm chất đạo đức gắn liền với hoạt động hằng ngày của mỗi con người " Cần, kiệm, liêm, chính, chí công vô tư "
 75. " Cũng như sông có nguồn thì mới có nước, không có nguồn thì sông cạn, cây phải có gốc không có gốc thì cây héo, người cán bộ phải có đạo đức, không có đạo đức thì dù có tài giỏi mấy cũng không lãnh đạo được nhân dân " SỬA ĐỔI LỐI LÀM VIỆC
