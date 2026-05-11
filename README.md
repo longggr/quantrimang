@@ -198,11 +198,36 @@ CHUYÊN ĐỀ HỌC TẬP VÀ LÀM THEO TƯ TƯỞNG, ĐẠO ĐỨC, PHONG CÁCH
 
 2019: Xây dựng ý thức tôn trọng NHÂN DÂN, phát huy dân chủ, chăm lo đời sống nhân dân theo tư tưởng, đạo đức phong cách HCM
 
-
-
-
-
-
-
-
 Chương 1:
+Đại hội II (2/1951):
+- Đảng nêu rõ: "Toàn Đảng hãy ra sức học tập đường lối chính trị, tác phong và cách mạng của Hồ Chủ tịch"
+
+2/9/1969:
+- Điếu văn BCH TW Đảng: "Dân tộc ta, nhân dân ta, non sông đất nước ta đã sinh ra Hồ Chủ tịch, người anh hùng vĩ đại, và chính người đã làm rạng rỡ dân tộc ta, nhân dân ta và non sông đất nước ta."
+
+Đại hội IV (12/1976):
+- "... người vun trồng khối đại đoàn kết dân tộc và xây dựng LLVT CM, vị lãnh tụ thiên tài của giai cấp công nhân và nhân dân ta, ng anh hùng dtộc vĩ đại, ng chiến sĩ lỗi lạc của phong trào cộng sản và công nhân quốc tế !"
+
+Đại hội V (3/1982):
+- "... học tập 1 cách có hệ thống tư tưởng, đạo đức, tác phong của Chủ tịch Hồ Chí Minh..."
+
+Đại hội VI (12/1986):
+- Nắm vững bản chất CM + KH của M-L
+- Kế thừa di sản quý báu về tư tưởng và lý luận của Bác
+
+Đại hội VII (1991) -> Cơ sở hình thành:
+- Một mốc lớn khi nêu cao tư tưởng HCM
+- Lấy CN M-L và tư tưởng HCM -> Kim chỉ nam
+- Bước đầu nhận thức k/n tư tưởng HCM đc sử dụng
+- Việc khẳng định cũng đc ghi trong Cương lĩnh 1991
+
+Đại hội IX (4/2001) -> Bản chất KH + CM:
+- Nêu ra TTHCM -> 1 hệ thống quan điểm sâu sắc, toàn diện
+- Có sự vận dụng và ptriển sáng tạo vào đk cụ thể của VN
+
+Đại hội X (4/2006):
+- Khẳng định lại CN M-L, TTHCM là nền tảng, kim chỉ nam
+- Là tài sản tinh thần vô giá của dân tộc
+
+Đại hội XI (2011):
+- Đưa ra khái niệm đầy đủ của TTHCM
