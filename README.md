@@ -242,3 +242,139 @@ Chương 1:
 
 Đại hội XI (2011):
 - Đưa ra khái niệm đầy đủ của TTHCM
+
+CHƯƠNG I. KHÁI NIỆM, ĐỐI TƯỢNG, PHƯƠNG PHÁP NGHIÊN CỨU VÀ Ý
+NGHĨA HỌC TẬP MÔN TƯ TƯỞNG HCM
+I. Khái niệm tư tưởng HCM
+a. Khái niệm
+- ĐH XI (2011): “Tư tưởng HCM là một hệ thống quan điểm toàn diện và sâu sắc
+về những vấn đề cơ bản của CM VN; kết quả của sự vận dụng và phát triển
+sáng tạo CN Mác - Lênin vào điều kiện cụ thể của nước ta, kế thừa và phát
+triển các giá trị truyền thống tốt đẹp của dân tộc, tiếp thu tinh hoa văn hóa
+nhân loại; là tài sản tinh thần vô cùng to lớn và quý giá của Đảng và dân tộc
+ta, mãi mãi soi đường cho sự nghiệp CM của ND ta giành thắng lợi”
+- Nội hàm khái niệm:
++ Nội dung cơ bản: Một hệ thống quan điểm toàn diện và sâu sắc về những
+vấn đề cơ bản của CM VN. Là hệ thống quan điểm về mục tiêu xây dựng một
+nước VN hòa bình, thống nhất, độc lập, dân chủ và giàu mạnh, góp phần xứng
+đáng vào sự nghiệp CM thế giới.
++ Cơ sở: CN Mác – Lênin (giá trị cơ bản nhất) & Tiếp thu các giá trị truyền
+thống tốt đẹp của tinh hoa văn hóa nhân loại
++ Ý nghĩa: là tài sản tinh thần vô cùng to lớn và quý giá; mãi mãi soi đường
+cho sự nghiệp CM
+b. Quá trình nhận thức của Đảng về tư tưởng HCM
+► Hội nghị thành lập Đảng (3.2.1930): Khẳng định những nội dung cơ bản
+trong tư tưởng HCM về đường lối CM VN
+► Quan điểm của Quốc tế CS và một số đại biểu của ĐCS Đông Dương (sau
+năm 1930): Quốc tế CS và một số đại biểu của ĐCS Đông Dương đã phê phán
+HCM trên một số phương diện về đường lối và lực lượng
+Ôn thi nhàn, Kết quả cao
+► ĐH II (1951): Học tập đường lối chính trị, tác phong đạo đức CM HCM
+► Điếu văn của BCHTW Đảng (9.1969): HCM – Anh hùng giải phóng dân tộc
+► ĐH IV (1976): HCM – Anh hùng giải phóng dân tộc, người chiến sĩ CS quốc tế
+lỗi lạc
+► ĐH V (1982): Đặc biệt coi trọng học tập tư tưởng, đạo đức, tác phong HCM
+► ĐH VI (1986): Đảng ta phải nắm vững bản chất CM và khoa học của CN Mác
+– Lênin, kế thừa di sản quý báu về tư tưởng và lý luận của Chủ tịch HCM
+► ĐH VII (1991): “Đảng lấy CN Mác – Lênin và tư tưởng HCM làm nền tảng tư
+tưởng và kim chỉ nam cho hành động”
+► ĐH IX (2001): Khái niệm tư tưởng HCM: “Tư tưởng HCM là một hệ thống quan
+điểm toàn diện và sâu sắc về những vấn đề cơ bản của CM VN, là kết quả của
+sự vận dụng và phát triển sáng tạo CN Mác - Lênin vào điều kiện cụ thể của
+nước ta, kế thừa và phát triển các giá trị truyền thống tốt đẹp của dân tộc, tiếp
+thu tinh hoa văn hóa nhân loại”
+► ĐH XII (2016): Kiên định CN Mác – Lênin và tư tưởng HCM, vận dụng sáng tạo
+và phát triển phù hợp với thực tiễn VN
+► Quốc tế: Năm 1990 sẽ đánh dấu 100 năm Kỷ niệm Ngày sinh của Chủ tịch
+HCM, anh hùng giải phóng dân tộc và nhà văn hóa kiệt xuất của VN (UNESCO)
+II. Đối tượng nghiên cứu của môn học tư tưởng HCM
+- Hệ thống quan điểm, quan niệm, lý luận về CM VN trong dòng chảy của thời
+đại mới, cốt lõi là tư tưởng độc lập, dân chủ và CNXH
+- Đối tượng của môn học tư tưởng HCM không chỉ là bản thân hệ thống các
+quan điểm lý luận được thể hiện trong toàn bộ di sản HCM mà còn là quá trình
+vận động, hiện thực hóa các quan điểm lý luận đó trong thực tiễn và CM VN
+III. Phương pháp nghiên cứu
+1. Phương pháp luận
+a. Thống nhất tính đảng và tính khoa học
+- Đứng trên lập trường giai cấp công nhân, trên quan điểm của CN Mác -
+Lenin
+b. Thống nhất lý luận và thực tiễn
+- HCM phê bình sự chủ quan, kém lý luận, “mắc phải cái bệnh khinh lý luận, có
+kinh nghiệm mà không có lý luận, cũng như một mắt sáng, một mắt mờ”
+- HCM chỉ rõ con người sẽ mắc phải căn bệnh “lý luận suông” nếu không áp
+dụng vào thực tế, “dù xem được hàng vạn quyển lý luận, nếu không biết đem
+ra thực hành, thì khác nào một cái hòm đựng sách
+c. Quan điểm lịch sử - cụ thể
+- Xem xét sự vật và hiện tượng đã xuất hiện trong lịch sử như thế nào; đứng
+trên quan điểm của sự phát triển đó để xem xét hiện nay nó đã trở thành như
+thế nào
+d. Quan điểm toàn diện và hệ thống
+- HCM xem xét CM VN tương quan hệ tổng thể với CM thế giới
+- Mối quan hệ trọng yếu trong CM VN là giữa vấn đề dân tộc và vấn đề giai
+cấp
+e. Quan điểm kế thừa và phát triển
+- Sự vật và hiện tượng trong một trạng thái vận động không ngừng.
+- Quá trình phát triển là quá trình khẳng định cái mới, phủ định cái cũ; đó
+cũng là quá trình luôn luôn giải phóng, giải phóng mọi sự ràng buộc lạc hậu
+để bắt kịp những cái tiên tiến, tiến bộ
+2. Một số phương pháp cụ thể
+a. Phương pháp logic, phương pháp lịch sử và sự kết hợp 2 phương pháp này
+- Phương pháp logic nghiên cứu tổng quát nhằm tìm ra bản chất vốn có của
+sự vật, hiện tượng và khái quát thành lý luận
+- Phương pháp lịch sử nghiên cứu sự vật và hiện tượng theo trình tự phát sinh,
+phát triển đến hệ quả của nó
+b. Phương pháp phân tích văn bản kết hợp với nghiên cứu hoạt động thực
+tiễn của HCM
+- Một số tác phẩm quan trọng của Bác
++ Bản án chế độ thực dân Pháp
++ Đường cách mệnh
++ Cương lĩnh chính trị T2/1930
++ Tuyên ngôn độc lập của Bác
++ Thường thức chính trị
++ Đạo đức CM
++ Di chúc của Bác
+c. Phương pháp chuyên ngành, liên ngành
+- HCM thể hiện tư tưởng của mình thông qua nhiều lĩnh vực như chính trị, triết
+học, kinh tế, quân sự, tư tưởng văn hóa,...
+IV. Vị trí môn học
+1. Quan hệ giữa môn tư tưởng HCM với môn triết học, kinh tế chính trị và
+CNXHKH.
+- Quan hệ biện chứng thống nhất.
+- Triết học, kinh tế chính trị, CNXHKH là cơ sở thế giới quan, phương pháp luận,
+là nguồn gốc tư tưởng trực tiếp quyết định bản chất CM, khoa học của tư
+tưởng HCM.
+- HCM là người vận dụng sáng tạo và phát triển những nguyên lý triết học,
+kinh tế chính trị và CNXHKH vào điều kiện cụ thể của CM VN.
+2. Với môn Lịch sử ĐCS VN
+- HCM là người sáng lập rèn luyện và là lãnh tụ của ĐCS VN.
+- HCM là người tìm kiếm, lựa chọn, vạch ra đường lối CM đúng đắn cho sự
+nghiệp CM VN.
+- Tư tưởng HCM là một bộ phận quan trọng nhất, cùng với CN Mác - Lênin tạo
+nền tảng tư tưởng, kinm chỉ nam cho hoạt động của ĐCS VN.
+V. Ý nghĩa học tập môn học
+1. Góp phần nâng cao năng lực tư duy lý luận
+- Trang bị cho sinh viên tri thức khoa học về hệ thống quan điểm toàn diện và
+sâu sắc về CM VN; hình thành năng lực, phương pháp làm việc, niềm tin, tình
+cảm CM
+- Góp phần củng cố cho sinh viên về lập trường CM trên nền tảng CN Mác –
+Lenin
+- Biết vận dụng tư tưởng HCM vào giải quyết các vấn đề đặt ra trong cuộc
+sống
+2. Giáo dục và định hướng thực hành đạo đức CM, củng cố niềm tin khoa học
+gắn liền với trau dồi tình cảm CM, bồi dưỡng lòng yêu nước
+- Sinh viên có điều kiện tốt để thực hành đạo đức CM, chống CN cá nhân,
+chống “giặc nội xâm” để lập thân, lập nghiệp, sống có ích cho xã hội, yêu và
+làm những điều tốt, ghét và tránh cái xấu và nguyện “Sống, chiến đấu, LĐ, học
+tập theo ngương Bác Hồ vĩ đại”
+3. Xây dựng, rèn luyện phương pháp và phong cách công tác
+- Vận dụng tốt hơn những kiến thức và kĩ năng đã nghiên cứu, học tập vào
+việc xây dựng phương pháp học tập, tu dưỡng, rèn luyện phù hợp với điều kiện
+cụ thể của từng người, từng địa bàn
+
+
+
+
+
+
+
+
