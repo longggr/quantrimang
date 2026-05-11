@@ -8,6 +8,17 @@ CHƯƠNG 1: KHÁI NIỆM, ĐỐI TƯỢNG, PHƯƠNG PHÁP NGHIÊN CỨU VÀ Ý N
 90. Đối tượng của bộ môn tư tưởng Hồ Chí Minh? QUÁ TRÌNH SẢN SINH VÀ HIỆN THỰC HÓA TƯ TƯỞNG HCM
 119. Đối tượng nghiên cứu môn học Tư tưởng Hồ Chí Minh là: Quá trình hệ thống quan điểm của Hồ Chí Minh vận động trong thực tiễn
 
+- "Đảng ta là 1 Đảng cầm quyền" -> Di chúc
+- HCM khẳng định ĐCS VN ra đời là sự kết hợp 3 ytố -> 30 năm h/đ của Đảng
+- "Đảng vừa là ng lãnh đạo..... đầy tớ trung thành" -> Quan niệm về ĐCS VN cầm quyền
+- "Nghe n~ lời bình luận ko đúng, cx làm thinh,...." -> "Ko biện bác"
+- "Bảy xin hiến pháp ban hành; Trăm đều phải có thần linh pháp quyền" -> Việt Nam yêu cầu ca
+- Tác phẩm Thường thức ctrị đc viết -> 1953
+- "Đảng ta là đạo đức, là văn minh" -> Lễ kỷ niệm 30 năm thành lập Đảng
+- Công tác gốc của Đảng là -> Công tác cán bộ
+- "Ở nc ta, chính quyền là của dân, do dân làm chủ" -> Thg thức ctrị
+
+  
 CHƯƠNG 2: CƠ SỞ, QUÁ TRÌNH HÌNH THÀNH VÀ PHÁT TRIỂN TTHCM
 - " bây giờ học thuyết nhiều,...." ĐƯỜNG CÁCH MỆNH
 - QTCS nhận ra và sửa chữa sai lầm "tả" -> Đại hội VII
