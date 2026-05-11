@@ -373,6 +373,201 @@ cụ thể của từng người, từng địa bàn
 
 
 
+CHƯƠNG IV. TƯ TƯỞNG HCM VỀ ĐCS VN VÀ NHÀ NƯỚC CỦA ND, DO ND,
+VÌ ND
+I. Tư tưởng HCM về ĐCSVN
+1. Tính tất yếu và vai trò lãnh đạo của ĐCSVN
+► Quan điểm của CN Mác - Lênin:
+- Sự hình thành ĐCS là sản phẩm của sự kết hợp CNXH khoa học và
+phong trào công nhân.
+► Quan điểm của HCM
+- Sự hình thành ĐCS là sản phẩm của sự kết hợp CN Mác Lenin, phong
+trào công nhân và phong trào yêu nước
+- Đảng ra đời vì sự sống còn của dân tộc.
+- Đảng giác ngộ lý tưởng, xây dựng đường lối chiến lược phù hợp, tổ
+chức đoàn kết và lãnh đạo sự nghiệp CM đi tới thắng lợi
+- Đảng tổ chức, vận động đoàn kết quốc tế.
+- Cơ sở bảo đảm vai trò nhân tố hàng đầu của Đảng:
++ Đảng được trang bị lý luận CN Mác - Lênin.
++ Đảng viên ĐCS là những người ưu tú, tiến bộ của giai cấp công nhân
+và dân tộc.
++ Đảng được ND tin cậy và ủng hộ
+Ôn thi nhàn, Kết quả cao
+2. Đảng phải trong sạch, vững mạnh
+a. Đảng là đạo đức, là văn minh
+► Đạo đức
+- Mục đích hoạt động của Đảng là giải phóng dân tộc, giải phóng xã
+hội, giải phóng con người; vì cuộc sống hòa bình, ấm no, hạnh phúc
+thực sự của ND.
+- Đảng luôn trung thành với lợi ích toàn dân tộc vì Đảng không có mục
+đích riêng, mọi hoạt động của Đảng đều vì lợi ích ND.
+- Đội ngũ đảng viên phải luôn thấm nhuần đạo đức cách mạng, ra sức
+tu dưỡng, rèn luyện, suốt đời phấn đấu cho lợi ích của dân, của nước.
+► Văn minh
+- Đảng tiêu biểu cho lương tâm, trí tuệ và danh dự của dân tộc
+- Đảng ra đời là một tất yếu, phù hợp với quy luật phát triển văn minh
+tiến bộ của dân tộc và nhân loại.
+- Đảng luôn trong sạch, vững mạnh, làm tròn sứ mệnh lịch sử ND giao
+phó.
+- Đảng cầm quyền hoạt động trong khuôn khổ Hiến pháp và pháp
+luật.
+- Đảng viên là những chiến sĩ tiên phong, gương mẫu trong công tác
+và cuộc sống hàng ngày.
+- Đảng có quan hệ quốc tế trong sáng, hoạt động vì hòa bình, hữu
+nghị, hợp tác cùng phát triển của các dân tộc trên thế giới.
+b. Những vấn đề nguyên tắc trong hoạt động của Đảng
+► Đảng lấy chủ nghĩa Mác - Lênin làm nền tảng tư tưởng và kim chỉ
+nam cho hành động.
+► Tập trung dân chủ.
+- 2 điều cần tránh trong hoạt động của Đảng
++ Độc đoán, chuyên quyền, coi thường tập thể
++ Dựa dẫm tập thể, không dám quyết đoán
+► Tự phê bình và phê bình.
+- Đây là việc phải làm thường xuyên, “như mỗi ngày phải rửa mặt”
+- HCM cho rằng tự phê bình và phê bình là “thang thuốc” tốt nhất để
+làm cho phần tốt trong mỗi tổ chức và mỗi con người nảy nở như hoa
+mùa xuân và phần xấu bị mất dần đi
+► Kỷ luật nghiêm minh, tự giác.
+► Đảng phải thường xuyên tự chỉnh đốn.
+- Tròn tác phẩm Sửa đổi lối làm việc, HCM nêu lên 12 điều, trong đó có
+Điều 9: “Đảng phải chọn lựa những người rất trung thành và rất hăng
+hái” và Điều số 10: “Đảng phải luôn luôn tẩy bỏ những phần tử hủ hóa
+ra ngoài”
+► Đoàn kết, thống nhất trong Đảng.
+► Đảng liên hệ mật thiết với ND.
+- HCM nói: “Đảng không phải làm quan, sai khiến quần chúng, mà
+phải làm đầy tớ cho quần chúng và phải làm cho ra trò, nếu không,
+quần chúng sẽ đá đít”
+► Đoàn kết quốc tế.
+c. Xây dựng đội ngũ cán bộ, đảng viên
+► Tuyệt đối trung thành với Đảng.
+- Đặt lợi ích của Đảng lên trên hết vì lợi ích của Đảng là lợi ích của dân
+tộc, của Tổ quốc
+► Chăm chỉ thực hiện cương lĩnh, đường lối, chủ trương nghị quyết của
+Đảng và các nguyên tắc xây dựng Đảng.
+► Luôn tu dưỡng, rèn luyện, trau dồi đạo đức cách mạng.
+► Luôn học tập nâng cao trình độ về mọi mặt.
+► Có mối liên hệ mật thiết với ND.
+► Luôn chịu trách nhiệm, năng động, sáng tạo.
+► Luôn luôn phòng và chống các tiêu cực.
+- 1969, Bài báo của HCM “Nâng cao đạo đức CM, quét sạch CN cá
+nhân” được đăng trên báo ND để chỉ ra các vấn đề tư cách, đạo đức,
+chống sự suy thoái trong đảng viên
+- Trong di chúc, HCM viết “Đảng cần phải chăm lo giáo dục đạo đức
+CM cho họ, đào tạo họ thành những người thừa kế xây dựng CNXH vừa
+“hồng” vừa “chuyên” ”
+II. Tư tưởng HCM về dân chủ và nhà nước của dân, do dân, vì ND
+1. Nhà nước dân chủ
+a. Bản chất giai cấp của nhà nước:
+⃝Nhà nước VN mang bản chất giai cấp công nhân
+► ĐCSVN giữ vai trò cầm quyền
+- Đảng cầm quyền bằng hình thức:
++ Bằng đường lối, quan điểm, chủ trương
++ Bằng hành động của các tổ chức đảng và đảng viên
++ Bằng công tác kiểm tra
+► Tính định hướng xã hội chủ nghĩa trong sự phát triển đất nước
+- Đưa đất nước đi lên CNXH và CN CS là mục tiêu CM nhất quán của
+HCM
+► Nguyên tắc tổ chức và hoạt động của Nhà nước là tập trung dân
+chủ
+⃝Bản chất giai cấp công nhân thống nhất với tính ND và dân tộc
+- Nhà nước ra đời là kết quả cuộc đấu tranh lâu dài và gian khổ của
+nhiều thế hệ người VN, của toàn thể dân tộc.
+- Nhà nước hoạt động vì quyền lợi của ND, lấy quyền lợi dân tộc làm
+nền tảng.
+- Nhà nước đảm đương nhiệm vụ bảo vệ nền độc lập, tự do của Tổ
+quốc, xây dựng một nước VN thống nhất, độc lập, dân chủ, giàu mạnh.
+b. Nhà nước của ND
+► Theo HCM, nhà nước của ND là nhà nước mà tất cả mọi quyền lực
+trong tay nhà nước và trong xã hội đều thuộc về ND
+► ND thực thi quyền lực thông qua 2 hình thức: dân chủ trực tiếp và
+dân chủ gián tiếp
+- Dân chủ trực tiếp: ND trực tiếp quyết định mọi vấn đề liên quan đến
+vận mệnh của quốc gia, dân tộc và quyền lợi của công chúng
+- Dân chủ gián tiếp
++ Quyền lực nhà nước là “thừa ủy quyền” của ND
++ ND có quyền kiểm soát, phê bình nhà nước, có quyền bãi miễn
+những đại biểu mà họ đã lựa chọn, bầu ra và có quyền giải tán những
+thiết chế quyền lực mà họ đã lập nên
++ Luật pháp dân chủ và là công cụ quyền lực của ND
+c. Nhà nước do ND
+- ND “cử ra”, “tổ chức nên” nhà nước dựa trên nền tảng pháp lý của
+một chế độ dân chủ và theo các trình tự dân chủ với các quyền bầu
+cử, phúc quyết
+- Nếu “dân là chủ” xác định vị thế của ND đối với quyền lực nhà nước,
+thì “dân làm chủ” nhấn mạnh quyền lợi và nghĩa vụ của ND với tư
+cách là người chủ
+- Dân làm chủ thì phải tuân theo pháp luật của Nhà nước, tuân theo kỷ
+luật LĐ, giữ gìn trật tự chung, đóng góp (nộp thuế) đúng kỳ
+d. Nhà nước vì dân
+- Nhà nước vì dân là nhà nước phục vụ lợi ích và nguyện vọng của ND,
+không có đặc quyền đặc lợi, thực sự trong sạch, cần kiệm liêm chính
+2. Nhà nước pháp quyền
+a. Nhà nước hợp hiến, hợp pháp
+- HCM luôn chú trọng vấn đề xây dựng nền tảng pháp lý cho Nhà nước
+VN mới:
++ Yêu sách của ND An Nam yêu cầu cải cách nền pháp lý ở Đông
+Dương: người dân bản xứ cũng được quyền hưởng những bảo đảm về
+mặt pháp luật như người Âu châu;..
++ 3/9/1945, trong phiên họp đầu tiên của Chính phủ lâm thời, HCM đề
+nghị tổ chức TỔNG TUYỂN CỬ
++ 6/1/1946, Tổng tuyển cử được tiến hành thắng lợi với chế độ phổ
+thông đầu phiếu, trực tiếp và bỏ phiếu kín
+b. Nhà nước thượng tôn pháp luật
+► Cần làm tốt công tác lập pháp.
+- HCM 2 lần tham gia soạn thảo Hiến Pháp (Hiến Pháp 1946 & 1959)
+► Chú trọng đưa pháp luật vào cuộc sống, đảm bảo cho pháp luật
+được thi hành và có cơ chế giám sát việc thi hành pháp luật.
+- Phải “làm sao cho ND biết hưởng quyền dân chủ, biết dùng quyền
+dân chủ của mình, dám nói, dám làm”
+► Luôn nêu cao tính nghiêm minh của pháp luật.
+► Khuyến khích ND phê bình, giám sát công việc của Nhà nước, giám
+sát quá trình Nhà nước thực thi pháp luật.
+- Trong thư gửi Hội nghị tư pháp toàn quốc, HCM viết: “Các bạn là
+những người phụ trách thi hành pháp luật. Lẽ tất nhiên các bạn cần
+phải nêu cao cái gương “phụng công, thủ pháp, chí công, vô tư” cho
+ND noi theo”
+c. Pháp quyền nhân nghĩa
+- Nhà nước phải tôn trọng, bảo đảm thực hiện đầy đủ các quyền con
+người, chăm lo đến lợi ích của con người.
+- Pháp luật có tính nhân văn, khuyến thiện.
+3. Nhà nước trong sạch, vững mạnh
+a. Kiểm soát quyền lực nhà nước
+- Kiểm soát quyền lực nhà nước là tất yếu
+- 2 cách kiểm soát: từ trên xuống, từ dưới lên
+- Hiến pháp năm 1946 đã đề cập đến vấn đề kiểm soát quyền lực nhà
+nước dựa trên cách thức tổ chức bộ máy nhà nước và việc phân công,
+phân nhiệm giữa các cơ quan thực thi quyền lực nhà nước
+- ND là chủ thể tối cao của quyền lực Nhà nước, vì thế, ND có quyền
+kiểm soát quyền lực Nhà nước
+b. Phòng, chống tiêu cực trong Nhà nước
+⃝Những tiêu cực trong hoạt động của Nhà nước:
+- Đặc quyền, đặc lợi, sa vào CN cá nhân
+- Tham ô, lãng phí, quan liêu:
++ 27/11/1946, HCM ký Sắc lệnh ấn định hình phạt tội đưa và nhận hối lộ
++26/1/1946, HCM ký lệnh nói rõ tội tham ô, trộm cắp đến mức cao nhất
+là tử hình
+- Tư túng, chia rẽ, kiêu ngạo
+⃝Các biện pháp phòng, chống tiêu cực trong Nhà nước:
+- Nâng cao trình độ dân chủ trong xã hội
+- Pháp luật của Nhà nước và kỷ luật của Đảng phải nghiêm minh
+- Coi trọng giáo dục, cảm hóa
+- Cán bộ phải đi trước làm gương
+- Phát huy sức mạnh của chủ nghĩa yêu nước
+III. Vận dụng tư tưởng HCM vào công tác xây dựng đảng và xây dựng
+nhà nước
+1. Xây dựng Đảng thật sự trong sạch, vững mạnh
+- Đề ra đường lối, chủ trương đúng đắn
+- Thực hiện thật tốt đường lối, chủ trương của Đảng
+- Chú trọng hơn nữa công tác chỉnh đốn Đảng
+2. Xây dựng Nhà nước
+- Xây dựng Nhà nước thật sự trong sạch, vững mạnh
+- Tiếp tục hoàn thiện hệ thống pháp luật, tôn trọng, bảo đảm, bảo vệ
+quyền con người, quyền và nghĩa vụ của công dân
+- Chú trọng công tác xây dựng đội ngũ cán bộ, công chức
+- Đấu tranh phòng chống tham nhũng, lãnh phí, quan liêu, hách dịch,
+cửa quyền
+
 
 
 
