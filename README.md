@@ -9,7 +9,14 @@ CHƯƠNG 1: KHÁI NIỆM, ĐỐI TƯỢNG, PHƯƠNG PHÁP NGHIÊN CỨU VÀ Ý N
 119. Đối tượng nghiên cứu môn học Tư tưởng Hồ Chí Minh là: Quá trình hệ thống quan điểm của Hồ Chí Minh vận động trong thực tiễn
 
 CHƯƠNG 2: CƠ SỞ, QUÁ TRÌNH HÌNH THÀNH VÀ PHÁT TRIỂN TTHCM
-
+- " bây giờ học thuyết nhiều,...." ĐƯỜNG CÁCH MỆNH
+- QTCS nhận ra và sửa chữa sai lầm "tả" -> Đại hội VII
+- Ai là ng bàn nh~ nhất về cuộc đtranh chống CNTB -> C.Mác
+- HCM sáng lập Hội liên hiệp thuộc địa -> 1921
+- "Đến ngày thắng lợi .... đàng hoàng hơn, to hơn" -> Lời kêu gọi chống Mỹ cứu nc
+- "làm tư sản dân quyền CM và thổ địa CM" -> Cương lĩnh ctrị 1930
+- bàn nh~ nhất về chống CN thực dân: HCM
+- bàn nh~ nhất về chống CN Đế quốc: V.I. Lênin
 2. BCH trung ương Đảng tôn vinh HCM là " anh hùng dân tộc vĩ đại " NĂM 1969
 5. HCM được UNESCO công nhận là " anh hùng dân tộc, nhà văn hóa kiệt xuất " NĂM 1987
 8. HCM tham gia sáng lập hội liên hiệp các thuộc địa: NĂM 1921
@@ -191,3 +198,11 @@ CHUYÊN ĐỀ HỌC TẬP VÀ LÀM THEO TƯ TƯỞNG, ĐẠO ĐỨC, PHONG CÁCH
 
 2019: Xây dựng ý thức tôn trọng NHÂN DÂN, phát huy dân chủ, chăm lo đời sống nhân dân theo tư tưởng, đạo đức phong cách HCM
 
+
+
+
+
+
+
+
+Chương 1:
