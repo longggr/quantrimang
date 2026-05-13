@@ -1,4 +1,4 @@
-https://docs.google.com/document/d/1xx0WtOj1pQqBVOCmH75BV4glevK46mhq7aF-fGnV4J8/edit?usp=sharing
+[https://docs.google.com/document/d/1xx0WtOj1pQqBVOCmH75BV4glevK46mhq7aF-fGnV4J8/edit?usp=sharing](https://docs.google.com/document/d/1ufT5mSW1eCTfobPJN3kwdT0bvFM-aZOB_paurR4l2Ak/edit?usp=sharing)
 CHƯƠNG 1: KHÁI NIỆM, ĐỐI TƯỢNG, PHƯƠNG PHÁP NGHIÊN CỨU VÀ Ý NGHĨA HỌC TẬP MÔN TTHCM
 1. Khái niệm tư tưởng HCM được đưa ra trong ĐẠI HỘI XI 2011
 3. Đại hội đánh dấu sự nhận thức của Đảng về vai trò của TTHCM: ĐẠI HỘI VII 1991
